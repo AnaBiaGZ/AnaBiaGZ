@@ -17,7 +17,6 @@ Estou sempre em busca de projetos desafiadores que me permitam aprender e aplica
 Estou sempre aberta a novas conexões e oportunidades. Sinta-se à vontade para me contatar:
 
 -   **LinkedIn:** Ana Beatriz Gadea Zaparoli (https://www.linkedin.com/in/ana-beatriz-gadea-zaparoli-147659311/)
--   **Instagram:** https://www.instagram.com/zapabia/
 -   **Email:** abgadeazaparoli@gmail.com
 
 <!---
